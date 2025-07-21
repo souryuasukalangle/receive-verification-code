@@ -1,5 +1,3 @@
-#q群免费提供加速器vpn梯子
-
 免费接收验证码的电话（注册可用，保护隐私）
 
 bestsms：https://bestsms.xyz/
